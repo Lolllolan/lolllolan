@@ -1,4 +1,4 @@
-![image](https://files.catbox.moe/ri4feu.webp)
+
 ​​![](https://files.catbox.moe/vqtvr2.webp) ![](https://files.catbox.moe/div2er.webp)
 
 
