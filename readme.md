@@ -1,6 +1,6 @@
 ![text](https://file.garden/aGdi7E9X_j-yMny0/ezgif-645d1439afd8b834.gif)
 
-‎ꉹ⑅ִ۫˚ I do not want to cuddle with random strangers, you can sit next to me and interact, but I do not appreciate cuddles especially from ships. If you are a **friend** you're welcome to sit and interact with me.
+‎ꉹ⑅ִ۫˚ I do not want to cuddle with random strangers, **you can sit next to me and interact**, but I do not appreciate cuddles especially from ships. If you are a **friend** you're welcome to sit and interact with me.
 The only exception for cuddling is my **girlfriend**.
 
  Please be patient with us if we do not remember you. We suffer from dissociative amnesia, and if we do not have notes and have you friended we will not know who you are.
